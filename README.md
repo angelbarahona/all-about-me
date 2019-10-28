@@ -9,6 +9,12 @@ My family consists of me, 1 brother, 3 sisters, dad, mom, and 2 stepmoms, 2 gran
 ## Hobbies
 My Hobbies are me just practicing my fortnite skills against my underlevelded friends and absolutly dominating them 
 
-# Favorite image
+# Favorites
 
-![meme](https://memestatic.fjcdn.com/pictures/No+pizza+rolls+for+doggo_812018_7340950.jpg)
+![meme](https://i.kym-cdn.com/photos/images/newsfeed/001/613/867/e42.jpg)
+
+## Music
+any Latino song, meme music, lil revive, lil tecca, and nightcore
+
+## Summary
+Im a person with a liking of different genres of games, music, NOT SPORTS(only soccer), and anime im pretty basic if you ask me
